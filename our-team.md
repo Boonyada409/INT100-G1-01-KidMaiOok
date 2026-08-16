@@ -17,4 +17,4 @@ Compose เพลง และก็ปั้นโมเดลให้เก�
 
 ## 📞 Contact: IG 🖼️
 ### https://www.instagram.com/bxtcha_peel/
-![alt text](numnim.jpg)
+![alt text](Numnim.jpg)
