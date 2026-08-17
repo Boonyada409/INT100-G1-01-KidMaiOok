@@ -26,4 +26,4 @@
 
 [IG](https://www.instagram.com/o_4xh1?igsh=eGF6MGVnaHh6ZHRp&igsi=eGF6MGVnaHh6ZHRp)
 
-![alt text](https://media.discordapp.net/attachments/1537743301480943648/1538638651800420392/1786910430973.jpg?ex=6a836869&is=6a8216e9&hm=43498bfe5e3a0e81ce5310fc5a17416266c7c649d3f29b4b40cfe6c2258193a0&=&format=webp&width=768&height=1024)
+![alt text](archi.webp)
